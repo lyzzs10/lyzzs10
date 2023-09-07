@@ -6,4 +6,4 @@
 <a href="https://b23.tv/tVyftHq" >本人BiliBili - 点击跳转</a>
 
 
-<em>本人QQ：692239032</em>
+<b>本人QQ：692239032</b>
